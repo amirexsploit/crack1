@@ -1,6 +1,4 @@
 
-# Open Source 🖕
-# Gratis / Free 🔥
 # Warning
 >> Script Free Yah Ngab 🤗
 >> Jangan Di Jual, Nanti Gua Hapus Lohh 🤣
@@ -23,13 +21,13 @@ $ pip install rich bs4
 $ pip install --upgrade pip
 $ git clone https://github.com/AMIRXPLOID/crack1
 $ ls ( L kecil )
-$ cd cracking5
+$ cd crac1
 $ python son.py
 ```
 ## Cara Update
 ```php
 $ cd
-$ cd cracking5
+$ cd crack1
 $ ls ( L kecil )
 $ git pull
 $ python son.py
