@@ -1,8 +1,7 @@
 
 # Warning
->> Script Free Yah Ngab 🤗
->> Jangan Di Jual, Nanti Gua Hapus Lohh 🤣
->> Hasilnya Ngga Cp² Amat Kog, Masih Ada OK nya Santuy Aja 👏
+>> Script Crack Fb🤗
+>> Hasilnya Akan dapet OK Semua Klo Bisa Maenin Mode Pesawat 👏
 >> Jangan Lupa Kasih Bintang + Follow Yahh 🖕
 >> 🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥🔥
 # Pake Doang Ngga Follow, Kontoll Loh
